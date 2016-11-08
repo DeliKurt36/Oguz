@@ -1,0 +1,2 @@
+# Oguz
+izmir merkezli
